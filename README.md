@@ -29,14 +29,9 @@
 ---
 ![格温](https://github.com/GoodnightPhish/Daphee_414join/assets/145374256/6fa03063-d2ba-48a9-98d5-81f728845fa4)
 ---
-![千稲 日花目（Senntou Hiwamesu）](https://github.com/GoodnightPhish/Daphee_414join/assets/145374256/09b60344-3402-47f8-b355-f832b9b07a50)
----
-![P$(2@%KJ Z H$)ZL9QD36X9](https://github.com/GoodnightPhish/Daphee_414join/assets/145374256/2cc20a39-ceff-45b3-b2b0-0db715bbeb82)
----
-> - 未完成
-![@(DDS2(ALY`9I6NF2U1_E1A](https://github.com/GoodnightPhish/Daphee_414join/assets/145374256/6a97ada3-e8cb-484a-a539-4422e26fef42)
+
 ---
 > - 未完成
 ![粥(改](https://github.com/GoodnightPhish/Daphee_414join/assets/145374256/6b38c221-b0fb-4f25-be57-0dcf4cdf080d)
 ---
-> 原创画的话设计的想法肯定是在这里讲不完的😳
+
